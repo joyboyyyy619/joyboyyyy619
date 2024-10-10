@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Anthony
 - 👀 I’m interested in ...Learning
 - 🌱 I’m currently learning ...Development
-- 📫 How to reach me ...anthonynwaofor@gmail.com
+- 📫 How to reach me ... anthonynwaofor@gmail.com
 - 😄 Pronouns: ...Me
 - ⚡ Fun fact: ...Love is war lol...
 
